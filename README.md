@@ -1,0 +1,2 @@
+# obsidian
+just save img😁
